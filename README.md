@@ -7,9 +7,9 @@
 <br/>
 <br/>
 
-- Name: **Reidho Satria** / **レイドー・サトリア**
+- Name: **Aldi Sudibyo** / **レイドー・サトリア**
 
-- Residing in: **South Sumatra, Indonesia**
+- Residing in: **Java Island, Indonesia**
 
 - Field of Study: **Computer Science**
 
